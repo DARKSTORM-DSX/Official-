@@ -1,3 +1,4 @@
+![DSX71 Logo](DSX71-Dark-Storm-Logo.png.jpg)
 # DSX7.1 | DARK-STORM 🇵🇸
 
 <p align="center">
